@@ -76,8 +76,6 @@ Follow the ups and downs of my journey on my blog: https://kerrimcm25.medium.com
 
 ## Hobbies
 
-- Singer-songwriter 
-I love writing and recording music with my band, checkout one of our songs if you'd like: https://www.youtube.com/watch?v=-_YBKanWk20
-- Writing
-"Feeling sad? Write a poem about it!" - is generally my approach to things
+- Singer-songwriter: I love writing and recording music with my band, checkout one of our songs if you'd like: https://www.youtube.com/watch?v=-_YBKanWk20
+- Writing: "Feeling sad? Write a poem about it!" - is generally my approach to things
 
